@@ -10,3 +10,5 @@ Guidé par des énigmes cryptiques, l'explorateur se lance dans un voyage épiqu
 Un jour, un étranger mystérieux, portant un chapeau à larges bords et un manteau sombre, arriva à Saint-Fromage. Il prétendit connaître l'emplacement de cette recette secrète et proposa de la partager avec les habitants en échange de leur précieuse collection de fromages. La communauté était partagée entre l'avidité de découvrir le secret et la protection de leur patrimoine culinaire.
 
 Les tensions montèrent à mesure que l'étranger mystérieux dévoilait peu à peu les ingrédients de la recette, et les habitants de Saint-Fromage se trouvèrent confrontés à un choix difficile : préserver leur passion pour le fromage et les biscuits ou risquer de perdre leur héritage pour un pouvoir encore inconnu.
+
+Quelle combinaison *incroyable*, **une part de _salé_ et une part de _sucré_**, se culminant dans une **explosion** de saveur. Jamais il ne pourra oublier ce moment, cet instant restera *ancré dans sa mémoire*. Ahhh, quel délice, si seulement il était possible que cela dure pour l'**éternité**...
